@@ -1,0 +1,2 @@
+# Promoting-RChain-Africa-on-Reddit
+A Subreddit has been created for RChain Africa. Reddit is an amazing social media platform with milliions of users, the channel will be helpful for discussions and topics that both promotes RChain in Africa markets and provide regular updates on the events of RChain, briefings on less complex and very complex documentation that can onboard fresh ideas for both new members and established members. Click here u/RChain_Africa  https://www.reddit.com/u/RChain_Africa?utm_source=reddit-android
